@@ -1,4 +1,4 @@
-# Felipe do E. Santo
+# Maria Clara Gandini Pereira
 ## Sistemas para Internet
 
 Perfil do Github: https://github.com/MariaClaraGandini
